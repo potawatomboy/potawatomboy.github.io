@@ -14,3 +14,4 @@ Not the usual candidate for movie fame, but after the first world war, when poli
 At the End of Modern Times, The Tramp says to the Gamin:
 
 > Buck up - never say die!
+<img src=https://commons.wikimedia.org/wiki/File:Chaplin_A_Dogs_Life.jpg#/media/File:Chaplin_A_Dogs_Life.jpg/>
